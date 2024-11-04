@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on small projects to help me learn better
 - 📫 How to reach me: check out my Instagram and send me a DM!
 - 😄 Pronouns: She/Her!
-- ⚡ Fun fact: I absolutely adore cats! also anime, music of all kinds, and I'm addicted to Elder Scrolls!
+- ⚡ Fun fact: I absolutely adore animals! also anime, music of all kinds, and I'm addicted to Elder Scrolls!
 
 <!---
 MelodyLuciel/MelodyLuciel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
