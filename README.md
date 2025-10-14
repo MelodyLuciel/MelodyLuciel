@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MelodyLuciel
 - 👀 I’m interested in Web development and game development!
-- 🌱 I’m currently learning HTML, CSS, JavaScript
+- 🌱 I’m currently learning GdScript, C# and intent on learning C++ in the future!
 - 💞️ I’m looking to collaborate on small projects to help me learn better
 - 📫 How to reach me: check out my Instagram and send me a DM!
 - 😄 Pronouns: She/Her!
