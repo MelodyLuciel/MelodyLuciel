@@ -32,8 +32,8 @@ I am a huge cat lover! If I’m stuck on a bug, a cat sitting on my lap (or my k
 ---
 
 ### 📫 Let's Connect!
-- **Photography/Life:** [Your Social Link Here]
-- **Discord:** [Your Username Here]
+- **Photography/Life:** https://www.instagram.com/melody.samudio?igsh=aThldWRsYWk1eHAw
+- **Discord:** ange_liza
 
 *"Slow down and enjoy the journey."* 🕊️
 
